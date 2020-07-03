@@ -1,0 +1,1 @@
+# prijave-za-fet-tecajeve
